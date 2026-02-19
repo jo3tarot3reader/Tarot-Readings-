@@ -1,0 +1,2 @@
+# Tarot-Readings-
+Tarot Readings :)
